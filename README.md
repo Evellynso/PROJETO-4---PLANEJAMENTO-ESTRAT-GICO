@@ -33,6 +33,8 @@ Marketing: Fortalecer presença digital e redes sociais.
 Melhoria Contínua: Aprimorar serviços com base em feedbacks.
 ---
 Contato
-
 Telefone/WhatsApp: (XX) XXXX-XXXX
 E-mail: contato@lojadefestas.com
+
+
+Criado por: Evellyn Cleyciane 
